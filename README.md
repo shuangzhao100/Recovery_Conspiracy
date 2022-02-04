@@ -1,2 +1,2 @@
-# Recovery_Conspiracy-Theory
+# Recovery_Conspiracy
 SCALE Project
